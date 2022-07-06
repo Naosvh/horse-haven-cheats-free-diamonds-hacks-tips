@@ -1,2 +1,5 @@
-# horse-haven-cheats-free-diamonds-hacks-tips
-Horse Haven Cheats 2022 free diamonds Hacks coins guide updated version
+# Horse Haven Cheats 2022 free diamonds Hacks coins guide updated version
+
+Horse Haven Cheats 2022 free diamonds Hacks coins guide updated version - If you want to get more horses, just click the errand shop icon in the upper right corner of the screen, it looks like an open scroll, and then select professional skills and horse training. You can immediately move to Cassandra's location, select exploration, and then click the rein tab. Every time you try to catch a horse, you need irritants. These irritants can be made by Alchemy, using ingredients you can get from the fishing area. Be sure to master the art of sneaking, and get used to gently tapping your virtual steering board at the beginning of the task, because the horse is very sensitive to fast movement, and will gallop away when it feels you coming. Please ignore the monster mob and focus on the task at hand. Always stand at the tail of the horse, which is the blind spot of the horse. how to enter cheat codes in horse haven
+
+<a href="https://growhunt.top/horse-haven-world-adventures/">go here</a>
